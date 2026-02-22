@@ -1,2 +1,0 @@
-# Noura Tarek
-## Data Analyst
